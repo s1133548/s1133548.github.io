@@ -1,2 +1,3 @@
-# s1133548.github.io
-My 2nd exercise in Web Programming
+SIMELANE NELILE ANELE[1133548exercise02.html](https://github.com/user-attachments/files/22355018/1133548exercise02.html)
+
+s1133548@yzu.edu.tw
