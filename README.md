@@ -1,3 +1,2 @@
-SIMELANE NELILE ANELE[1133548exercise02.html](https://github.com/user-attachments/files/22355018/1133548exercise02.html)
+[1133548exercise02.txt](https://github.com/user-attachments/files/22355048/1133548exercise02.txt)
 
-s1133548@yzu.edu.tw
